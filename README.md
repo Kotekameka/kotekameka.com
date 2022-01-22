@@ -1,0 +1,2 @@
+# kotekameka.com
+Mengungkap Fakta
